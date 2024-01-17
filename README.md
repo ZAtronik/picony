@@ -1,1 +1,1 @@
-Zestaw polskich picon do programów telewizyjnych
+Zestaw polskich picon dla programów telewizyjnych
